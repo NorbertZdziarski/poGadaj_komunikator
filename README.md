@@ -1,0 +1,1 @@
+# poGadaj_komunikator
